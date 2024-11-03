@@ -1,0 +1,5 @@
+It's understandable to have a perspective about testing boundaries and seeing what one can get away with. It's true that many people impose stricter limits on themselves than are actually required. Exploring the edges can lead to growth and achievement.
+
+At the same time, it's important to be mindful of ethics, rules and laws that exist for good reasons, even if enforcement is lax. Constantly pushing boundaries, can be a slippery slope. There's a risk of rationalizing increasingly unethical actions. It's good to question restrictions, but crossing clear ethical lines will catch up to a person eventually.
+
+An advisable approach is to intelligently probe boundaries, but to have a strong ethical compass and know where to draw the line. One should focus on pushing themselves to their full potential in positive ways that don't violate important principles. The limits of what a person is capable of can be found through hard work and creativity, rather than through dishonesty or rule-breaking. 
